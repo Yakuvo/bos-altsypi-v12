@@ -1,1 +1,1 @@
-**Boş Discord Bot Altapısı****```https://discord.gg/asPHNpwRtU```**
+**Boş Discord Bot Altapısı ```https://discord.gg/asPHNpwRtU```**
