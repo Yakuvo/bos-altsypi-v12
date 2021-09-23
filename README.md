@@ -1,1 +1,1 @@
-**Boş Discord Bot Altapısı ```https://discord.gg/asPHNpwRtU```**
+**Altyapı sahibi:** [Yakuvo](https://discord.com/users/808030143582437426)
